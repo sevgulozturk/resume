@@ -3,3 +3,8 @@
 This is my home page.
 
 I'm gonna make some changes.
+
+
+## About Me
+
+My name is **Sevgul**. I love luxury.
