@@ -10,8 +10,6 @@ I am a Graphic Design student with an interest in branding, editorial design, di
 
 [My LinkedIn Profile](https://www.linkedin.com/in/sevg%C3%BCl-%C3%B6zt%C3%BCrk-14b222231/)
 
-<a href="https://www.linkedin.com/in/sevg%C3%BCl-%C3%B6zt%C3%BCrk-14b222231/">My LinkedIn Profile</a>
-
 ## Education
 
 **Humber Polytechnic — Graphic Design**
