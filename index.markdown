@@ -1,7 +1,5 @@
-![image](100_0376.jpg) 
 # Sevgul Ozturk 
-width="567" height="551" alt="100_0376" src="https://github.com/user-attachments/assets/9a827957-65a9-4357-8852-83e4bb7adc0c" />
-
+![image](100_0376.jpg) 
 
 **Graphic Design Student**
 
